@@ -1,6 +1,6 @@
 - 👋 Yo, I’m @luhcartimods
 - 👀 I’m interested in minecraft modding 
-- 🌱 I’m currently learning java
+- 🌱 I know java, c# and a bit of python
 - 💞️ I’m looking to collaborate on any java/minecraft mods
 - 📫 How to reach me dm me on discord: babyboiguapo
 - 😄 Pronouns: he/him/himothy
