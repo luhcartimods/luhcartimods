@@ -1,1 +1,1 @@
-Monkey no like Java, Java bad banana. Monkey don't like eat bad banana, but bad banana is the only banana he knows. Monkey finding new Bananas and learning to know other Banana. Monkey finnaly happy Monkey :)
+Monkey no like Java, Java bad banana. Monkey don't like eat bad banana, but bad banana is the only banana Monkey knows. Monkey finding new Bananas and learning to know other Banana. Monkey finnaly happy Monkey :)
