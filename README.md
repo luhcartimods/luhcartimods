@@ -1,1 +1,1 @@
-Yo im luhcarti. I am a Dutch developer currently learning Python and Front-End Development. I have made some Minecraft mods but quit to pursue something else than Java, honeslty Java dont like Java make brain hurt Java make public static headache, Java make me mad!
+Monkey no like Java, Java bad banana. Monkey don't like eat bad banana, but bad banana is the only banana he knows. Monkey finding new Bananas and learning to know other Banana. Monkey finnaly happy Monkey :)
